@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows exclusive Preset: motion-tracking & multi-cam-editing is the best DaVinci Resolve for PC | DaVinci Resolve for Windows preset,
 
 
 
